@@ -1,0 +1,1 @@
+this repo is nothing but me learning the basics of AI and i never thought i will like it. but its kinda fun
